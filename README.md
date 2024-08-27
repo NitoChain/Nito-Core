@@ -1,4 +1,4 @@
-![githublogov2](https://github.com/user-attachments/assets/9efe558a-997f-4ab0-950c-df8fa8e9fa70)
+![imagenito](https://github.com/user-attachments/assets/41389ade-1a8e-4b9b-9f3a-2572bd1aadbb)
 
 
 ***What is Nito Core?***
